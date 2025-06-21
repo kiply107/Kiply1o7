@@ -3,23 +3,15 @@ Just some info 🌺
 <h1 align="center">Hi, I'm Kiply 🦪</h1>
 <h3 align="center">A syskid with a chaotic life 🍓</h3>
 
-- 🔭 I’m currently working on **My mental health 🍎**
+- 🔭 I’m currently working on **My mental health 🍭**
 
-- 🌱 I’m currently learning **Nothing tbh 🍳**
+- 🌱 I’m currently learning **Nothing tbh 🍥**
 
-- 👯 I’m looking to collaborate on **With the robot winnerz 🥞**
+- 👯 I’m looking to collaborate on **With the robot winnerz 🍡**
 
-- 🤝 I’m looking for help with **The void movement 🥐**
+- 🤝 I’m looking for help with **The void movement**
 
-- 👨‍💻 All of my projects are available at [Nah 🥚](Nah 🥚)
-
-- 📝 I regularly write articles on [Huh 🍤](Huh 🍤)
-
-- 💬 Ask me about **Dont even lil tuh 🍥**
-
-- 📫 How to reach me **Wut 🍡**
-
-- 📄 Know about my experiences [In breathing, very nice 🍦](In breathing, very nice 🍦)
+- 📄 Know about my experiences in **breathing, very nice 🍫.**
 
 - ⚡ Fun fact **I love fnaf & the hollow 🍰**
 
