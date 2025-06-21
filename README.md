@@ -9,7 +9,7 @@ Just some info 🌺
 
 - 👯 I’m looking to collaborate **With the robot winnerz 🍡**
 
-- 🤝 I’m looking for help with **The void movement**
+- 🤝 I’m looking for help with **The void movement** 🍩
 
 - 📄 Know about my experiences in: **breathing, very nice 🍫.**
 
