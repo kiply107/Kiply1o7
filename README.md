@@ -7,11 +7,11 @@ Just some info 🌺
 
 - 🌱 I’m currently learning **Nothing tbh 🍥**
 
-- 👯 I’m looking to collaborate on **With the robot winnerz 🍡**
+- 👯 I’m looking to collaborate **With the robot winnerz 🍡**
 
 - 🤝 I’m looking for help with **The void movement**
 
-- 📄 Know about my experiences in **breathing, very nice 🍫.**
+- 📄 Know about my experiences in: **breathing, very nice 🍫.**
 
 - ⚡ Fun fact **I love fnaf & the hollow 🍰**
 
