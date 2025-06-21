@@ -1,4 +1,4 @@
-# Kiply1o7
+# Kiply107
 Just some info 🌺
 <h1 align="center">Hi, I'm Kiply 🦪</h1>
 <h3 align="center">A syskid with a chaotic life 🍓</h3>
